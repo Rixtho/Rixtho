@@ -1,1 +1,1 @@
-Student and software devewoper at CQSE GmbH.
+Student at TUM and software devewoper at BMW.
