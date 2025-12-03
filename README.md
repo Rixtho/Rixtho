@@ -1,1 +1,1 @@
-Student at TUM and software devewoper at BMW.
+Student at TUM.
